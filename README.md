@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AnjuAnil27
-- 👀 I’m interested in drawing, cooking, reading.
-- 🌱 I’m currently learning food technology.
-- 💞️ I’m looking to collaborate on making new reserch in food recipes....
+- 👀 I’m interested in coding, graphic designing, website designing..
+- 🌱 I’m currently learning Bsc. Computer application 
+- 💞️ I’m looking to collaborate on making new website, games etc.
 - 📫 How to reach me, my address is
    Puthuprambil house, poovanpra, konni P.O
    Pathanmthitta, kerala, India.
